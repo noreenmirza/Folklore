@@ -21,4 +21,6 @@ https://storiestogrowby.org/story/early-reader-rumpelstiltskin-fairy-tale-englis
 Besides the predictable, but unpredictable plots, and riddle-like writing, Folklore also has a very distinct style of art. It mimics the paintings made back when we still had kings and queens. The art has always added more character and feeling to the stories. Many mythical creatures have sprouted from such stories. Some you may be familiar with are gnomes, goblins, fairies, leprechauns, and so many more.
 ## Summary
 The feeling received from these Fairytales is something I'll never be able to replace. I have been reading these stories since I was a young child and to this day I still want rock stew, which I had read about in an old tale. It's a niche subject but something that I feel as though should be shared to the whole world. So be sure to check out my reccomendations!
-#d6b086
+<style>
+background-color#d6b086
+</style>
