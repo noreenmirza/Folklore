@@ -6,12 +6,14 @@ The root of my personal interest in Folklore is something that I haven't pinpoin
 ## My Folktale Reccomendations
 ### Baba Yaga
 One Folklore story that embodies the wicked and twisted feeling I love is the story of Baba Yaga. The story entails a horrid witch whom lives in a dark forest. She lives in a house, but that house has chicken legs and chases those who enter the forest.
-![image](https://user-images.githubusercontent.com/114519188/193110126-eb246072-2797-409b-b340-95e6f0275534.png)
+https://mail.google.com/mail/u/0?ui=2&ik=027547f02d&attid=0.1&permmsgid=msg-f:1745329903098408443&th=1838a84cba0c2dfb&view=att&disp=safe
+
 https://www.storyberries.com/fairy-tales-the-baba-yaga-by-katharine-pyle/
 
 ###Rumpelstiltskin
 Another story that I personally love is one that you may be familiar with. The story of Rumpelstlktsken follows a basic storyline with a wicked little troll facing his consquences. But it is combined with many dark twists and can be enjoyed by all ages. I highly recommend reading the story if you haven't already.
 ![image](https://user-images.githubusercontent.com/114519188/193111177-f0fb51b3-e7bf-42ae-b2f8-26ebea07d119.png)
+
 https://storiestogrowby.org/story/early-reader-rumpelstiltskin-fairy-tale-english-stories-kids/
 
 ## Extra points
